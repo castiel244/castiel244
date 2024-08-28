@@ -9,3 +9,4 @@ Estou no gitHub principalmente para as seguintes ações:
  Para entrar em contato comigo, acesse:
 @Otaviosilva228📷
 
+![](https://static.wikia.nocookie.net/animeverso/images/d/d5/Toji_Fushiguro_%28Chapter_111%29.png/revision/latest?cb=20220719183153&path-prefix=pt-br)
